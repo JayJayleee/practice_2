@@ -37,3 +37,10 @@
 ![햄버거](https://mblogthumb-phinf.pstatic.net/MjAyMDEwMTNfOCAg/MDAxNjAyNTQ0Mzg3MzAx.tn1fjUD1cHsSneI2sL3B0nyUjIIcMcHGw0pZIK0-S_kg.pXLI2zXNf9l7rjbkeqLV1_Xv-ETQ9_M5YuZ-UHRvcYMg.JPEG.riael1230/IMG_2651.JPG?type=w800)
 
 - 햄버거조아
+
+
+## 부사동 농민순대
+
+![여기는어딜까요](https://postfiles.pstatic.net/MjAyMjExMjdfMTUz/MDAxNjY5NTQ2NzIwNTgy._7nAv9VP9gmCBd_YT9JrBOPxrEozMUT0Y2fomGlrmyAg.rVHMBcKZPEFoexO3P2QK4sTEaIgZr33nn20sgup6Gc4g.JPEG.07juahlily21/IMG_3419.jpg?type=w773)
+- 야구보고 먹는 맛있는 전골 냠😋😋😊</br>
+  한화도 가끔 이기기는 해요...💦
