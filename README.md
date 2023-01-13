@@ -46,3 +46,9 @@
 ![여기는어딜까요](https://postfiles.pstatic.net/MjAyMjExMjdfMTUz/MDAxNjY5NTQ2NzIwNTgy._7nAv9VP9gmCBd_YT9JrBOPxrEozMUT0Y2fomGlrmyAg.rVHMBcKZPEFoexO3P2QK4sTEaIgZr33nn20sgup6Gc4g.JPEG.07juahlily21/IMG_3419.jpg?type=w773)
 - 야구보고 먹는 맛있는 전골 냠😋😋😊</br>
   한화도 가끔 이기기는 해요...💦
+
+
+## 촌놈들 연탄구이
+
+![꼬들살 체고](https://d12zq4w4guyljn.cloudfront.net/20210801162100_photo1_244a4d834576.jpg)
+
