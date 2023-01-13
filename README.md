@@ -25,3 +25,11 @@
 
 싸피 정말 쉽지 않군요ㅠ
 ![우리는강하다](https://s3.orbi.kr/data/file/united2/1a70c39bd7c04ff3add4e2eae649e8a8.png)
+
+------------------------------------------------------
+
+# 저녁 메뉴 추천 #
+
+![회](https://img1.daumcdn.net/thumb/R1280x0/?fname=http://t1.daumcdn.net/brunch/service/user/9PXh/image/9znoSHYZYKUnZzdTryU9tc_XGQk.jpg)
+
+- 회 먹고 싶네요
