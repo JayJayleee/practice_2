@@ -21,6 +21,7 @@
 
 이거 중간에 자꾸 섞이네요
 귀여워요..
+![내 솜사탕 돌려줘요](https://img.theqoo.net/proxy/http://img-direct.theqoo.net/img/AvDJm.gif)
 
 싸피 정말 쉽지 않군요ㅠ
 ![우리는강하다](https://s3.orbi.kr/data/file/united2/1a70c39bd7c04ff3add4e2eae649e8a8.png)
